@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DovydasVe
-- 👀 I’m interested in learning how to code
-- 🌱 I’m currently learning fundimentals
-- 📫 Discord: Apricots#9758
+Contact information:
+dhvenclovas@gmail.com
+https://www.linkedin.com/in/dovydas-venclovas/
+
